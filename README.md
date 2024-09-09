@@ -6,5 +6,5 @@
 ![Screenshot 2024-09-09 170022](https://github.com/user-attachments/assets/1097fe54-bd81-4d5e-bd9f-57c791100021)
 
 
-https://github.com/user-attachments/assets/7a3bffb7-b0ab-427a-ae1b-ba6de38dc1a3
+https://github.com/user-attachments/assets/a94fd3f0-d9d1-4771-8e13-d4f52eb0c5c9
 
